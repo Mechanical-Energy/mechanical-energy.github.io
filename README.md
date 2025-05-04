@@ -1,1 +1,0 @@
-# mechanical-energy.github.io
